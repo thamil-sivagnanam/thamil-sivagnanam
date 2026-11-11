@@ -53,7 +53,7 @@ India
 
 ### Connect
 
-- [LinkedIn](YOUR-LINKEDIN-URL)
+- [LinkedIn](https://www.linkedin.com/in/thamil-sivagnanam-91b8a0235)
 - [GitHub](https://github.com/thamil-sivagnanam)
 
 ---
